@@ -5,7 +5,7 @@
 
 
 
-hi dis is a wip ok.. 
+hi dis is a wip ok.. (banner credits to @pixopix on tumblr)
 
 
 
