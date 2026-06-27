@@ -3,6 +3,10 @@
 
 
 
+<p align="center">
+  <img src="https://files.catbox.moe/6wqky3.gif" alt="animated" />
+</p>
+
 
 
 hi dis is a wip ok.. 
