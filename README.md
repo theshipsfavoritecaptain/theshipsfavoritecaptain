@@ -1,2 +1,15 @@
-<img width="540" height="89" alt="4e13fcecb7d2584797a96225b01760af0a38eebd" src="https://github.com/user-attachments/assets/2a74f1a2-bf9d-4b97-833c-2a8c89b37739" />
+<img width="540" height="45" alt="90f34aebec54f1a0b129887bd3ea3c8650d1de66" src="https://github.com/user-attachments/assets/ccc3d3a3-7cf7-49e5-af49-7960d553dc0b" />
+
+
+
+
+
+
 hi dis is a wip ok.. 
+
+
+
+
+
+
+<img width="540" height="45" alt="90f34aebec54f1a0b129887bd3ea3c8650d1de66" src="https://github.com/user-attachments/assets/ccc3d3a3-7cf7-49e5-af49-7960d553dc0b" />
