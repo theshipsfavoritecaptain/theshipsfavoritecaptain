@@ -4,7 +4,7 @@
 
 
 
-![](https://files.catbox.moe/x2de0i.gif)
+![](https://files.catbox.moe/6wqky3.gif)
 hi dis is a wip ok.. (banner credits to @pixopix on tumblr)
 
 
