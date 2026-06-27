@@ -4,7 +4,7 @@
 
 
 <p align="center">
-  <img src="https://files.catbox.moe/6wqky3.gif" alt="animated" />
+  <img src="https://files.catbox.moe/x2de0i.gif" alt="animated" />
 </p>
 
 
